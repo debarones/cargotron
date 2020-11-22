@@ -1,1 +1,0 @@
-ka tu ka VAKARE
